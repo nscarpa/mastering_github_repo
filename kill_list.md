@@ -1,3 +1,4 @@
 Accidia
 Lussuria
 Avarizia
+Gola
