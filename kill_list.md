@@ -1,0 +1,3 @@
+Accidia
+Lussuria
+Avarizia
